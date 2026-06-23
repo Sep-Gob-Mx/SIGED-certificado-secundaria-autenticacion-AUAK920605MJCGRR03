@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AUAK920605MJCGRR03
+AUAK920605MJCGRR03
